@@ -1,1 +1,1 @@
-# Master_Thesis_2024
+# Master Thesis 2024
